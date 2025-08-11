@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and learning new things and i learn from my mistakes too
 - 🌱 I’m currently learning python an further i will learn dsa java c++ c etc. 
 - 💞️ I’m looking for collaboration with companies for a job and experienced developer to work with them
-- 📫 How to reach me sent yours mail at aayushir685@gmail.com
+- 📫 How to reach me sent your mails at aayushir685@gmail.com
 - 😄 Pronouns: enthusiatic determined and hardworking
 - ⚡ Fun fact: if given a chance i will work with my utmost sincerity...and if any experienced developer can teach me new things then it would be a great help and you guys are most welcome..
 
